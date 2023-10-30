@@ -5,3 +5,5 @@ As arboviroses são doenças virais transmitidas por artrópodes, majoritariamen
 
 ![image](grafico_mg_yf.webp)
 ![image](febre-amarela-vale_4BnBZYV.webp)
+
+fonte: https://g1.globo.com/bemestar/febre-amarela/noticia/ministerio-confirma-243-casos-de-febre-amarela-208-foram-em-minas-gerais.ghtml
